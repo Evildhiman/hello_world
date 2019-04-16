@@ -1,1 +1,6 @@
 # hello_world
+hii folks
+i think i'm naive here
+Now what i am
+I am what no one can change me..........
+I think so..............
